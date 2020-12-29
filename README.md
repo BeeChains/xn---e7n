@@ -1,2 +1,2 @@
-# carpediem.xn---e7n/ , (𰴞)/ | a Handshake top level domain
+# carpediem.xn---e7n/ , (𰴞)/ | an emoji Handshake blockchain top level domain
  () domain
